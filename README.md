@@ -1,2 +1,0 @@
-# thekenhive
-where things go
